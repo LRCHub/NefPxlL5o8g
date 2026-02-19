@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "ディス・イズ・ザ・ニュー・シット",
+  "base_artist": "Marilyn Manson",
+  "createdAt": "2026-02-19T11:46:26.138569Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "This Is The New Shit",
+      "artist": "Marilyn Manson",
+      "has_synced": false,
+      "path": "select/pl_01_This_Is_The_New_Shit_Marilyn_Manson.txt"
+    }
+  ]
+}
