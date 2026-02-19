@@ -1,0 +1,102 @@
+# Marilyn Manson – ディス・イズ・ザ・ニュー・シット
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+everything has been said before
+there's nothing left to say
+anymore
+when it's all the same
+you can ask for it by name
+babble babble bitch bitch
+rebel rebel party party
+sex sex sex and
+don't forget the violence
+blah blah blah got your lovey
+dovey sad and lonely
+stick your stupid slogan in
+everybody sing along
+babble babble bitch bitch
+rebel rebel party party
+sex sex sex and
+don't forget the violence
+blah blah blah got your lovey
+dovey sad and lonely
+stick your stupid slogan in
+everybody sing
+are you motherfuckers ready
+for the new shit
+stand up and admit
+tomorrow's never coming
+this is the new shit
+stand up and admit
+do we get it no
+do we want it yeah
+this is the new shit
+stand up and admit
+<♪>
+babble babble bitch bitch
+rebel rebel party party
+sex sex sex and
+don't forget the violence
+blah blah blah got your lovey
+dovey sad and lonely
+stick your stupid slogan in
+everybody sing along
+everything has been
+said before
+there's nothing
+left to say anymore
+when it's all the same
+you can ask for it by name
+are you motherfuckers ready
+for the new shit
+stand up and admit
+tomorrow's never coming
+this is the new shit
+stand up and admit
+do we get it no
+do we want it yeah
+this is the new shit
+stand up and admit
+and now it's you know who
+I got the you know what
+I stick it you know where
+you know why you don't care
+and now it's you know who
+I got the you know what
+I stick it you know where
+you know why you don't care
+and now it's you know who
+I got the you know what
+I stick it you know where
+you know why you don't care
+and now it's you know who
+I got the you know what
+I stick it you know where
+you know why you don't care
+<♪>
+babble babble bitch bitch
+rebel rebel party party
+sex sex sex and
+don't forget the violence
+blah blah blah got your lovey
+dovey sad and lonely
+stick your stupid slogan in
+everybody sing
+are you motherfuckers ready
+for the new shit
+stand up and admit
+tomorrow's never coming
+this is the new shit
+stand up and admit
+do we get it no
+do we want it yeah
+this is the new shit
+stand up and admit
+<♪>
+so let us entertain you
+so let us entertain you
+so let us entertain you
+so let us entertain you
+```
